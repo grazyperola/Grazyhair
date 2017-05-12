@@ -1,2 +1,0 @@
-# Grazyhair
-Transformando seu visual
